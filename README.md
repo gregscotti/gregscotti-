@@ -1,0 +1,2 @@
+# gregscotti-
+Estudiante de criptomoneda 
